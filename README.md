@@ -2,4 +2,4 @@
 ![](https://files.catbox.moe/iik4kl.png)
 <div align="center"
       
-[ata](https://laymeinafieldofflowers.atabook.org)   .   [carrd](https://enjcythesilence.carrd.co) 
+[ata](https://laymeinafieldofflowers.atabook.org) 
